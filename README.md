@@ -5,3 +5,4 @@
 - 📫 How to reach me ??? (probably Discord)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I wanna Storm Chase when I'm older.
+So yeah, idk what to say...
